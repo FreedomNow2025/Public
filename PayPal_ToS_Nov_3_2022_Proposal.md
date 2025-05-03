@@ -1,3 +1,20 @@
+This was the PayPal posted ToS Nov 3 2022. It may have been a pre-announcement for what they planned to roll out.  
+
+PayPal's ToS have changed since, but we must never forget. This is espcially important since the US Government and other parts of the US financial industry Debanked USA citizens, for political reasons. Operation Choke Point 2.0 was the US government working with US financial institutes to persecute US citizens for political stances. I'm not saying PayPal was linekd to that, but what PayPal worked on rolling out (during a matching time frame) needs to never be forgotten.
+
+https://www.opchokepoint2.org/
+
+
+
+
+Violation ... $2,500.00 U.S. dollars per violation
+
+Involve the sending, posting, or publication of any messages, content, or materials that, in PayPal's sole discretion:
+   - Are otherwise unfit for publication.
+
+
+------------------------------------
+
 # PayPal Acceptable Use Policy
 
 **Last updated on November 3, 2022.**
