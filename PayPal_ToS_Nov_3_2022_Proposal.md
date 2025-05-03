@@ -7,6 +7,10 @@ https://www.opchokepoint2.org/
 
 
 
+
+------------------------------------
+# Focus on this part of the ToS below
+
 Violation ... $2,500.00 U.S. dollars per violation
 
 Involve the sending, posting, or publication of any messages, content, or materials that, in PayPal's sole discretion:
